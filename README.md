@@ -1,4 +1,4 @@
-[![Unbanking 101 How to Unbank Yourself with Bitcoin](https://github.com/JiriJAdam/Unbanking-101-How-to-Unbank-Yourself-with-Bitcoin/assets/54760137/68d3b929-0304-4184-8032-227ca2338397)](https://form.jotform.com/jsform/233059354275156)
+[![Unbanking 101 How to Unbank Yourself with Bitcoin](https://github.com/JiriJAdam/Unbanking-101-How-to-Unbank-Yourself-with-Bitcoin/assets/54760137/68d3b929-0304-4184-8032-227ca2338397)](https://form.jotform.com/233059354275156)
 
 
 
